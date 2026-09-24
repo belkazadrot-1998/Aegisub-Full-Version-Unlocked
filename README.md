@@ -1,0 +1,1 @@
+# Aegisub-Full-Version-Unlocked
